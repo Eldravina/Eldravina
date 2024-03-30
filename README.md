@@ -1,0 +1,7 @@
+- Hi, I’m @Eldravina (its my website's name, i dont wanna disclose my real name for some huge security reasons).
+- I’m interested in Money and Unlimited Wealth that's i living in Billioniare Life Mode.
+- I’m always up to accept learning everything about Trading and i did my best in trading field still now, im on the beat.   
+- I’m looking to collaborate my dream website into printed book form, because nobody can hack printed book mysterious.
+- How to reach me (ananyashee7@gmail.com)
+- Pronouns are He/Him
+- Fun fact: Im Looking for a Dream Mansion
